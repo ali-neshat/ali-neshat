@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ali-neshat
 - 👀 I’m interested in cosmology
-- 🌱 I’m currently learning physics
+- 🌱 I’m currently learning physics at sharif university
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me alineshat5@gmail.com
 - 😄 Pronouns: ...
